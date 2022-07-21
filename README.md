@@ -1,1 +1,1 @@
-# ariklevytapia.github.io
+# https://arik-lt.github.io/ariklevytapia/
